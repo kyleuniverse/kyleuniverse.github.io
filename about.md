@@ -8,4 +8,4 @@ Hello! I'm Kyle, I live in Vegas as a full time student entering my first year o
 
 ### Contact me!
 
-[jacksonkyle08@domain.com](mailto:jacksonkyle08@gmail.com)
+[jacksonkyle08@gmail.com](mailto:jacksonkyle08@gmail.com)
