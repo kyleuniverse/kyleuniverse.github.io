@@ -12,4 +12,5 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[jacksonkyle08@domain.com](mailto:jacksonkyle08@gmail.com)
+[My tumblr](kneeslice.tumblr.com)
